@@ -57,7 +57,6 @@ Sou um desenvolvedor em transição de carreira, cursando **ADS na Uniasselvi**.
 
 📱 (51) 994312853
 📧 tierry.243@gmail.com
-* 📍 Porto Alegre - RS
 * [LinkedIn](https://www.linkedin.com/in/tierry-gomes-a22006207/)
-
+* 📍 Porto Alegre - RS
 ---
