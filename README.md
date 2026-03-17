@@ -38,7 +38,7 @@ Busco oportunidades em instituições que valorizam ética, seriedade e precisã
 
 ### 📫 Contato: 
 📱 (51) 994312853
-📧 tierry.243@gmail.com
+\n📧 tierry.243@gmail.com
 * 📍 Porto Alegre - RS
 * [LinkedIn](https://www.linkedin.com/in/tierry-gomes-a22006207/)
 
