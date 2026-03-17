@@ -24,9 +24,10 @@ Competências técnicas aplicadas no desenvolvimento de sistemas de alta critici
 ---
 
 ### 📩 Contato Profissional
-📱 (51) 99431-2853
-📧 tierry.243@gmail.com
-* 📍 Porto Alegre - RS
+* 📱 (51) 99431-2853
+* 📧 tierry.243@gmail.com
 * [LinkedIn](https://www.linkedin.com/in/tierry-gomes-a22006207/)
+* * 📍 Porto Alegre - RS
+
 
 ---
